@@ -1,0 +1,2 @@
+# STIKER
+STIKE >>>>>>>>>>MOBILE
